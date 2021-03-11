@@ -9,3 +9,5 @@ Video explicativo desafio 05 (semana 4) https://youtu.be/NvChDvzpVo0
 Video explicativo desafio 06 (semana 5) https://youtu.be/vIQUdzH48Jc
 
 Video explicativo desafio 07 (semana 6) problemas técnicos.
+
+Video explicativo desafio 08 (semana 7) https://youtu.be/7cGoyG0k10c
